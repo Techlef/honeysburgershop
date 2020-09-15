@@ -8,4 +8,8 @@ In the Future i will make more and better MLOs, so if you want you can join my D
 
 [link to my Discord Server](https://discord.gg/qgHVTzZ)
 
+[![Watch the video](https://i.imgur.com/GIXTLIl.png)](https://youtu.be/L5LZ5TK_xfk)
+
 ![Image of Yaktocat](https://imgur.com/g1Q2Lck.png)
+
+
