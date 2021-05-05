@@ -6,7 +6,7 @@ I created it 6 month ago, but i like to share it with you all.
 
 In the Future i will make more and better MLOs, so if you want you can join my Discord and follow my Work!
 
-[link to my Discord Server](https://discord.gg/qgHVTzZ)
+[link to my Discord Server](https://discord.gg/fdEgtwEp7U)
 
 [![Watch the video](https://i.imgur.com/GIXTLIl.png)](https://youtu.be/L5LZ5TK_xfk)
 
